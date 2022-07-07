@@ -1,8 +1,5 @@
-- 👋 Hi, I’m @Emma3kora2
-- 👀 I’m interested in roblox and movis and sires
-- 🌱 I’m currently learning programing
-- 💞️ I’m looking to collaborate on school an ._.
-- 📫 How to reach me ...
-UwU
-OwO
-OxO
+- 👋 Hi, I’m @Emma
+- 👀 I’m interested in drawing virtuly and movis and sires
+- 🌱 I’m currently learning programing and some franc and sing lengueg
+- 💞️ I’m looking to collaborate in a place to help street dogs and other street animals 🐼🐇
+- 🍏 eat haelthy . it´s good for your health 🍏 🍊🍌  🍇 🍓 🫐 🍈 🍒 🍑 🍍 🥥 🥝 🍅  🥑 🥦 🥬  🌶 🫑 🌽 🥕
